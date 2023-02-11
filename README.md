@@ -1,2 +1,1 @@
-# RushWebsite2023
-Rush 9.0
+AGON RUSH 2023
